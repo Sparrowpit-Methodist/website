@@ -6,6 +6,7 @@ nav:
   - History: history.md
   - Traditions: traditions.md
   - Find Us: find.md
+  - Pictures of Sparrowpit: pictures.md 
   - MkDocs: mkdocs.md
 
 markdown_extensions:
