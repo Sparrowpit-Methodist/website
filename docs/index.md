@@ -6,4 +6,6 @@ We are a friendly and inclusive rural congregation, enjoying traditional service
 
 Our regular services are at 2.45pm on the third Sunday of the month.
 
+For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
+
 Read more about the [history](history.md) and [traditions](traditions.md) of Sparrowpit Methodists
