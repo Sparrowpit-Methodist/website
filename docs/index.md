@@ -8,7 +8,11 @@ Our regular services are at 2.45pm on the third Sunday of the month.
 
 Upcoming services:
 
-
+| Date | Leader |
+|------|--------|
+| 21 Jan | TBC |
+| 18 Feb | TBC |
+| 17 Mar | TBC |
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
