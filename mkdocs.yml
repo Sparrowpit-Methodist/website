@@ -4,6 +4,7 @@ theme:
 nav:
   - Home: index.md
   - History: history.md
+  - Traditions: traditions.md
   - Find Us: find.md
   - MkDocs: mkdocs.md
 
