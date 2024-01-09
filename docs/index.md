@@ -10,8 +10,8 @@ Upcoming services:
 
 | Date | Leader |
 |------|--------|
-| 21 Jan | TBC |
-| 18 Feb | TBC |
+| 21 Jan **Covenant Service** | Revd Julie Letts |
+| 18 Feb | Revd Julie Letts |
 | 17 Mar | TBC |
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
