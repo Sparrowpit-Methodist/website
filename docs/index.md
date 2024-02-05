@@ -12,7 +12,9 @@ Upcoming services:
 |------|--------|
 | 21 Jan **Covenant Service** | Revd Julie Letts |
 | 18 Feb | Revd Julie Letts |
-| 17 Mar | TBC |
+| 17 Mar | Revd Julie Letts |
+| 21 Apr | Rev Carole Marsden |
+| 19 May | Mrs Heather Thomas|
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
