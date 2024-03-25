@@ -7,6 +7,8 @@ nav:
   - Traditions: traditions.md
   - Find Us: find.md
   - Pictures of Sparrowpit: pictures.md 
+  - Safeguarding: safeguarding.md
+  - Fair Processing: fairprocessing.md
   - MkDocs: mkdocs.md
 
 markdown_extensions:
