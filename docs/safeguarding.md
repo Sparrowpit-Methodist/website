@@ -35,9 +35,6 @@ Working with the Church Safeguarding Officer, we will support risk assessment of
 
 In all these principles, we will follow legislation, guidance and recognised good practice.
 
-
-##A Model Church Safeguarding Policy 
-
 ##Safeguarding Children, Young People and Vulnerable Adults Policy for Sparrowpit  Methodist Church
 
 ###Purpose 
