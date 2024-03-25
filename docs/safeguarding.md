@@ -38,7 +38,7 @@ In all these principles, we will follow legislation, guidance and recognised goo
 
 ##A Model Church Safeguarding Policy 
 
-Safeguarding Children, Young People and Vulnerable Adults Policy for Sparrowpit  Methodist Church
+##Safeguarding Children, Young People and Vulnerable Adults Policy for Sparrowpit  Methodist Church
 
 ###Purpose 
 
