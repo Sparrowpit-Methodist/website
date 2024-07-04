@@ -14,7 +14,7 @@ Upcoming services:
 | 18 Aug |  |
 | 15 Sep |  |
 | 20 Oct |  |
-| 17 Nov | Mrs Heather Thomas|
+| 17 Nov |  |
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
