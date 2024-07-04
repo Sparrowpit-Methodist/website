@@ -10,11 +10,11 @@ Upcoming services:
 
 | Date | Leader |
 |------|--------|
-| 21 Jan **Covenant Service** | Revd Julie Letts |
-| 18 Feb | Revd Julie Letts |
-| 17 Mar | Revd Julie Letts |
-| 21 Apr | Rev Carole Marsden |
-| 19 May | Mrs Heather Thomas|
+| 21 Jul | Traditional Hymns service| 
+| 18 Aug |  |
+| 15 Sep |  |
+| 20 Oct |  |
+| 17 Nov | Mrs Heather Thomas|
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
