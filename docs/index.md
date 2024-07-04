@@ -10,7 +10,7 @@ Upcoming services:
 
 | Date | Leader |
 |------|--------|
-| 21 Jul | Traditional Hymns service| 
+| 21 Jul | Traditional Hymns service - Come and join us for a good sing of all your old favourites| 
 | 18 Aug |  |
 | 15 Sep |  |
 | 20 Oct |  |
