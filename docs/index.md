@@ -11,10 +11,10 @@ Upcoming services:
 | Date | Leader |
 |------|--------|
 | 21 Jul | Traditional Hymns service - Come and join us for a good sing of all your old favourites| 
-| 18 Aug |  |
-| 15 Sep |  |
-| 20 Oct |  |
-| 17 Nov |  |
+| 18 Aug | Heather Thomas |
+| 15 Sep | TBC |
+| 20 Oct | TBC |
+| 17 Nov | TBC |
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
