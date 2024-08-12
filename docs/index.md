@@ -12,9 +12,9 @@ Upcoming services:
 |------|--------|
 | 21 Jul | Traditional Hymns service - Come and join us for a good sing of all your old favourites| 
 | 18 Aug | Heather Thomas |
-| 15 Sep | TBC |
-| 20 Oct | TBC |
-| 17 Nov | TBC |
+| 15 Sep | Harvest Thanksgiving Service |
+| 20 Oct | Revd Julie Letts (Holy Communion) |
+| 17 Nov | Revd Julie Letts |
 
 For up to date information on our services and events Like and Follow our [Facebook page](https://www.facebook.com/SparrowpitMethodist)
 
