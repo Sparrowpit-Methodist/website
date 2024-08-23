@@ -10,8 +10,6 @@ Upcoming services:
 
 | Date | Leader |
 |------|--------|
-| 21 Jul | Traditional Hymns service - Come and join us for a good sing of all your old favourites| 
-| 18 Aug | Heather Thomas |
 | 22 Sep | Harvest Thanksgiving Service (NB This is the Fourth Sunday) |
 | 20 Oct | Revd Julie Letts (Holy Communion) |
 | 17 Nov | Revd Julie Letts |
