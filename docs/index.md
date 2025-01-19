@@ -1,4 +1,4 @@
-![View from Sprrowpit to Barmoor](images/SparrowpitView.jpeg)
+![View from Sparrowpit to Barmoor](images/SparrowpitView.jpeg)
 
 #Welcome to Sparrowpit Methodist Church
 

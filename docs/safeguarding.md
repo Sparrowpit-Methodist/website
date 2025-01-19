@@ -1,4 +1,4 @@
-#Sparrowpit Church Safeguarding Policy 2024
+#Sparrowpit Church Safeguarding Policy 2025
 
 ##Statement of Safeguarding Principles 
 
@@ -41,7 +41,7 @@ In all these principles, we will follow legislation, guidance and recognised goo
 
 The purpose of the church safeguarding policy is to check that procedures are in place and provide clarity about the roles and responsibilities of those trusted with promoting the church as a safe space for all its users.  
 
-This policy was agreed at a Church Council held on 8 October 2023 
+This policy was agreed at a Church Council held on 20 October 2024 
 
 The Methodist Church, along with the whole Christian community, believes each person has a value and dignity which comes directly from God’s creation in God’s own image and likeness. Christians see this as fulfilled by God’s re-creation of us in Christ. Among other things, this implies a duty to value all people as bearing the image of God and therefore to protect them from harm. 
 
